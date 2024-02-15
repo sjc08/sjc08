@@ -1,3 +1,5 @@
 # Hi there 👋
 
-### [www.alexsjc.top](https://www.alexsjc.top/)
+A junior high school student.
+
+[www.alexsjc.top](https://www.alexsjc.top/)
