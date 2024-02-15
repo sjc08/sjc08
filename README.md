@@ -2,4 +2,4 @@
 
 A junior high school student.
 
-[www.alexsjc.top](https://www.alexsjc.top/)
+Check my website! -> [alexsjc.top](https://www.alexsjc.top/)
